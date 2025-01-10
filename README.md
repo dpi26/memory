@@ -1,1 +1,1 @@
-memory content about that memory gamming
+memory content about that memory gamming.
